@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **anshs1939@gmail.com**
 
-- ⚡ Fun fact **I think i am funny**
+- ⚡ Fun fact **I Think i am funny**
 
 
 
