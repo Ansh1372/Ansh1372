@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java , MERN**
 
-- 📫 How to reach me **anshs1939@gmail.com**
+- 📫 How to reach me **anshs1939@gmail.com **
 
 - ⚡ Fun fact **I Think i am funny**
 
